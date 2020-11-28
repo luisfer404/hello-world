@@ -4,3 +4,4 @@ First day in school
 yes i am
 comprar pan
 Jugar LOL
+Jugar minecraft
